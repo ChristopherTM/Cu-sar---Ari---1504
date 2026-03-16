@@ -1,5 +1,5 @@
 # Cu-sar---Ari---1504
-Estudio astrofísico y caracterización energética del objeto SDSS J091217.20+020120.3 (Z=3.589) Muestra del profundo amor que tengo por mi bella mujer, la mas bella e increible. Siempre me ha apoyado y ha creído en mí, siempre la honraré por ello. Ari, te amo.
+Estudio astrofísico y caracterización energética del objeto SDSS J091217.20+020120.3 (Z=3.589) Muestra del profundo amor que tengo por mi bella mujer, la mas bella, inteligente, amorosa e increíble. Siempre me ha apoyado y ha creído en mí, siempre la honraré por ello. Ari, te amo.
 # 🌌 Proyecto: Cuásar Ari - 1504
 
 ### Registro de Anomalía de Alto Redshift
